@@ -1,0 +1,1 @@
+# Reset-AnyDesk-Trial---Complete-Cleanup-Script-for-Windows
